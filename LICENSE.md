@@ -1,4 +1,4 @@
-# 
+# updated liquidity sniper bot | degen-coin-scanning + new-token-detection offers the most advanced liquidity sniper bot, with degen-coin-scanning and new-token-detection. Ideal for
 
 
 
